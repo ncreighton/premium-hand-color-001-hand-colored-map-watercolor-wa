@@ -1,0 +1,2 @@
+# premium-hand-color-001-hand-colored-map-watercolor-wa
+Tired of losing track of which watercolor wash you used on that perfect map border? The Hand Colored Map Watercolor Wash and Border Log is your personal archive for every hue and stroke.  This Notion template solves the chaos of scattered notes by giving you a structured system to record every wash, border style, and color combination. It’s the bes
